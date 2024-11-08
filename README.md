@@ -8,7 +8,7 @@ Estamos trabajando en un formato de registro electrónico para alumnos de la **F
 
 Esperamos tener todo listo el fin de semana, pero el lunes será el día que publiquemos la información.
 
-Nuevamente nuestro agradecimiento a todos los interesados y les pedimos un poco de paciencia y se mantengan pendientes de este espacio. 
+Nuevamente, nuestro agradecimiento a todos los interesados y les pedimos un poco de paciencia y se mantengan pendientes de este espacio. 
 
 
 Atte.
